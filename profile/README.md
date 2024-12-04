@@ -1,6 +1,10 @@
 # Minecraft 1.21.50 APK Download Update Latest The Garden Awakens
 Minecraft has once again captured the imagination of millions with its latest update, Minecraft 1.21.50: The Garden Awakens. This release is a celebration of nature’s beauty, introducing a lush and magical biome, captivating new mobs, groundbreaking gameplay mechanics, and countless creative opportunities.
 
+# Download Free: [Minecraft 1.21.50](https://mcpedlapk.com)
+
+**Join Gamemodfree Community To update the latest games every day: [Here](https://t.me/Mcpedlapk)**
+
 In this detailed guide, we’ll take you on an enchanting journey through everything this update offers. From its stunning new features to step-by-step instructions for downloading the APK, this guide has it all. So, gear up and get ready to experience Minecraft like never before!
 
 ## Chapter 1: A New Era of Adventure – What is The Garden Awakens?
